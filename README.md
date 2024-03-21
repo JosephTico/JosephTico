@@ -1,5 +1,5 @@
 ## Hi 👋 I am Joseph!
-Computer Engineering student at Tecnológico de Costa Rica.
+Computer Engineer. Pokémon fan. 
 
 To connect with me,
 
